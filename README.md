@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @g0thi
+- 👀 I’m interested in music art and video games
+- 🌱 I’m currently learning python
+- 📫 How to reach me disocrd: g0thi
