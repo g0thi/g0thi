@@ -1,4 +1,4 @@
-- 👋 Hi, I’m jamie
+- 👋 Hi
 - 👀 I’m interested in music art and video games
 - 🌱 I’m currently learning AI and computer architecture xD
 - 📫 How to reach me disocrd: g0thi
